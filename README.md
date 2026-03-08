@@ -48,4 +48,4 @@ I am a seasoned Software Developer with over 10 years of experience building hig
 ---
 
 ## 📫 How to Reach Me
-* **Email:** [hyayang@gmail.com](mailto:hyayang@gmail.com)****
+* **Email:** [seawest1219@gmail.com](mailto:seawest1219@gmail.com)****
